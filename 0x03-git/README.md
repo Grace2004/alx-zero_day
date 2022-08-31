@@ -1,1 +1,1 @@
-Grace is a 10/10
+Grace is a 10/10 beauty
